@@ -29,7 +29,7 @@ A
 
 # Fort
 
-![](RackMultipart20220505-1-13igpu_html_cdbe20d614f5d2c6.png)
+![](wordpad_gMX29opIfV.png)
 
 - Group 1 – would stay on point 100% if there was influence
 - Group 2 &amp; 3 – would fight up top or around point if needed, as well as assist on front respawns if close
