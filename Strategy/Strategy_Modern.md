@@ -2,7 +2,7 @@
 
 # Defaults
 
-![](wordpad_gMX29opIfV.png)
+![](wordpad_PzTtLK5BPb.png)
 
 A
 
