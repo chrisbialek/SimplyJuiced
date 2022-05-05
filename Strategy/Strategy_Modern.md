@@ -1,4 +1,4 @@
-# Modern Defence Strat
+# Modern Defense Strat
 
 # Defaults
 
