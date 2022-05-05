@@ -2,7 +2,7 @@
 
 # Defaults
 
-![](RackMultipart20220505-1-13igpu_html_58e254fa3e691006.png)
+![](wordpad_gMX29opIfV.png)
 
 A
 
